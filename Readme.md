@@ -1,0 +1,1 @@
+Here we have the simplest recipe of choco lava cakes. The best part is that it involves NO use of electricity, and can easily made at home WITHOUT moulds! Appam pans are used as moulds and NO PREHEATING is required. 10-15 minutes is the preparation time and 10 minutes baking time. THAT'S IT!
